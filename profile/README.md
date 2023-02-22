@@ -1,2 +1,2 @@
 
-  if you're a company trying to sue us, please reach out to our legal team at **noreply@flawless.run**
+We understand that your company may harbor ill-conceived notions of taking legal action against us. However, in the unlikely event that you choose to pursue such a misguided path, we ask that you direct all inquiries to our team of tenacious legal experts at **noreply@flawless.run**. We assure you that our team will handle any and all frivolous claims with the utmost level of diligence and professionalism, while steadfastly defending our organization's rights and interests.
